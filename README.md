@@ -21,3 +21,12 @@ Visit https://useinsider.com/. Go to the Home page. No need to log in beforehand
 
 
 
+
+
+<img width="935" alt="Ekran görüntüsü 2023-04-27 175239" src="https://user-images.githubusercontent.com/28352511/234901429-c935f559-e54e-41dc-bf96-5bac3b72a620.png">
+
+
+
+
+
+
